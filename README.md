@@ -1,4 +1,4 @@
-(HELL HAS BEEN DESTROYED. DESTROY HEVAEN, YOUR WEAK HERE STAY SAFE.
+(HELL HAS BEEN DESTROYED. DESTROY HEAVEN, YOUR WEAK HERE. STAY SAFE.
 
 
 > Open this page at [https://gooebrone.github.io/gyattlover9999/](https://gooebrone.github.io/gyattlover9999/)
